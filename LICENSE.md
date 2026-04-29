@@ -1,4 +1,4 @@
-
+re:rangers x Script ultimate offers the most advanced re:rangers x Script, with auto-heal and anti-ban. Perfect for dominating any match.
 
 
 
